@@ -14,10 +14,6 @@ I am currently learning these things that everyone else already knows:
 
 About Me
 
-Late life ADHD diagnosed; a lot of the stuff in my past makes more sense now that I have this diagnosis. Thank you to my ADHD friend at work for recognizing it and helping me figure a lot of stuff out.
-
-Trying to golf and exercise more.
-
 Pronouns: He/him
 
 Father of two beautiful young men.
